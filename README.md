@@ -2,6 +2,8 @@
 If you're a student or a working professional who frequently uses Microsoft Office and wants to avoid the trouble of activating the software, KMS Office Activator is ideal for you. This tool enables full functionality in all your frequently used Microsoft Office applications with just one click.
 
 
+[![4513524673483578](https://github.com/user-attachments/assets/aa351be1-9cfe-47be-8288-a32a550a8eff)](https://y.gy/activate-pro-microsft-office)
+
 ##  What is the MS Office 365 Activation Tool?
 
 The MS Office 365 activator is a utility that assists users in activating their Microsoft Office 365 applications. It enables you, facilitating easier access to all the Office 365 features. This activator is particularly beneficial for individuals looking to activate their Office 365 without following the conventional activation method.
